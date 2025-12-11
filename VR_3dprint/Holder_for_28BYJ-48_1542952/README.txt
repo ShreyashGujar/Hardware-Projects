@@ -1,1 +1,0 @@
-Holder for 28BYJ-48 by Druidosh on Thingiverse: https://www.thingiverse.com/thing:1542952
